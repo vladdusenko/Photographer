@@ -1,2 +1,1 @@
-# vladdusenkoo.github.io
- Your personal photographer
+# Your personal photographer
